@@ -12,6 +12,6 @@ Check up my birthday wish for my gf:
 https://ayash13.github.io/birthdayhumay.github.io/
 
 
-seee yaaa!!!
+Seee yaaa!!!
 
 
