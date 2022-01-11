@@ -8,7 +8,7 @@ This repository i dedicate for my gf, Humay
 Feel free to ask me on twitter https://twitter.com/ayyeeesss
 
 
-Check up my birthday wish for my gf:
+Check up my birthday words for my gf:
 https://ayash13.github.io/birthdayhumay.github.io/
 
 
